@@ -1,1 +1,0 @@
-# Shalommandra.github.io
